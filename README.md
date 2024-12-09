@@ -1,1 +1,0 @@
-# 34shi-popitka
